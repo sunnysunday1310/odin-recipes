@@ -1,1 +1,1 @@
-this project is all about my recipes for my coffe shop and how it as enhance my ability to be in the chitchen  
+this project is all about my recipes for all my food lovers  and how they have encouraged me to be in the kitchen  
